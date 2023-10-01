@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **JAVA,.NET C#, PYTHON, HTML & CSS**
 
-- 📫 How to reach me **nasik03175486286@gmail.com**
+- 📫 Reach me at **nasik03175486286@gmail.com**
 
 - ⚡ Fun fact **I can make anyone laugh**
 
